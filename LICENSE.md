@@ -1,4 +1,4 @@
-#  
+#  smart Tool for Evernote for macOS - collaboration and reminders is the best Evernote for macOS tool, featuring collaboration and reminders. Safe, efficient, and optimized for
 
 
 
